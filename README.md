@@ -1,5 +1,7 @@
 # Decentralised_World
-You are too curious, nothing here...just download Word file ;)
+You are too curious, nothing here...
+
+still, hope list will help / share is care -- [0].[0]
 
 
 
@@ -8,19 +10,8 @@ You are too curious, nothing here...just download Word file ;)
 
 
 
+Hi to mom, my dear subconsciousness, Vitalik, and beautiful souls I meet tnx to crypto. 
 
-
-
-
-
-
-
-
-
-
-
-
-Hi mom, hello dear subconsciousness, big up r/ethfinance and Vitalik - send unicorns to rave at 2.0 launch.
 
 
 
